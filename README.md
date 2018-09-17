@@ -1,2 +1,2 @@
-# HC_SG17_paradygmat
+# MOTHNODE_ Paradygmant (feat. Lekki Okultyzm)
 Hitech Crime Single 'Paradygmat'
